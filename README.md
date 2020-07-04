@@ -1,0 +1,2 @@
+# ChebuRahska
+Learninig and training 
